@@ -52,7 +52,7 @@
 ---
 
 ### 🚀 **Link utili**
-📌 [Portfolio](#) | | 💼 [LinkedIn]([#](https://www.linkedin.com/in/antonio-mazzaro-180570333/))
+📌 [Portfolio](#) | | 💼 [LinkedIn]([#](https://www.linkedin.com/in/antonio-mazzaro-180570333/)
 
 ---
 🚀 _Se ti piace il mio lavoro, lascia una ⭐ sul mio profilo!
